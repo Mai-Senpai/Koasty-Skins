@@ -1,6 +1,6 @@
 # Koasty-Skins
 
-#THIS WILL STAY UPDATED
+# THIS WILL STAY UPDATED
 
 his discord -> https://discord.gg/nJNzHN
 
