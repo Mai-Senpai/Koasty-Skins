@@ -11,6 +11,9 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 # KOASTY'S SCOREBAR
 ## [Koast - Scorebar](https://download1074.mediafire.com/vo02hyiwd4zg/2dwaaspyivdyfe1/Koast+Scorebar.zip)
 
+# KOASTY'S CURSORS
+(coming soon)
+
 # ALL KOASTY SKINS
 (click the name to download)
 ## [YamashiroV2Koasty](https://cdn.discordapp.com/attachments/633473018353680449/691489138595201084/YamashiroV2Koasty.osk)
