@@ -43,5 +43,5 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ## [BlooMoon](https://drive.google.com/file/d/1B9xIOwFfJzbKd1U0j1Mw8HDe_QY-zo9y/view)
 ![Imgur Image](https://osu.ppy.sh/ss/14698226/da28)
 
-## [KingLing(Pokemon)](https://download1650.mediafire.com/885t7rbi0qug/eeq6h7q5f93xlz6/Pok%EF%BF%BDmon+4+Gen+Kingling.osk)
+## [Kingling(Pokemon)](https://download1650.mediafire.com/885t7rbi0qug/eeq6h7q5f93xlz6/Pok%EF%BF%BDmon+4+Gen+Kingling.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14698314/38eb)
