@@ -40,5 +40,5 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ## [ZachTV](http://download1761.mediafire.com/iihw18qpkgbg/tetx4jqf84tsxp6/ZachTV.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14670057/9f2a)
 
-## [BlooMoon](https://doc-10-44-docs.googleusercontent.com/docs/securesc/e65jhslt9i880qrdtr777qh275iscaer/r05sjik1nv00udlq9nhn2aon780jhd22/1585777125000/09353988553426636247/12265274978166372245/1B9xIOwFfJzbKd1U0j1Mw8HDe_QY-zo9y?e=download&authuser=0&nonce=tvhvb5np3stpm&user=12265274978166372245&hash=l9p591u887ai6qccllj8ph0r4jhv9m05)
+## [BlooMoon](https://drive.google.com/file/d/1B9xIOwFfJzbKd1U0j1Mw8HDe_QY-zo9y/view)
 ![Imgur Image](https://osu.ppy.sh/ss/14698226/da28)
