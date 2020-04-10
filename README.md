@@ -46,5 +46,5 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ## [Kingling(Pokemon)](https://download1650.mediafire.com/885t7rbi0qug/eeq6h7q5f93xlz6/Pok%EF%BF%BDmon+4+Gen+Kingling.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14698314/38eb)
 
-## [Bubbleman](https://doc-04-bg-docs.googleusercontent.com/docs/securesc/e65jhslt9i880qrdtr777qh275iscaer/2n8nqu8rbgr4l4pobi2iaq70lku0174r/1586547225000/05401412549706134811/12265274978166372245/19LlCZZbtmw5RM3xNwJoc_a0O0FxeuwTz?e=download&authuser=0&nonce=v9t4u1ajhqml6&user=12265274978166372245&hash=1o8uo3gudnvrsdjbeho92d3dimqmvv74)
+## [Bubbleman](https://www.mediafire.com/file/6m40jm9mi21d89x/BubbleSkin20-03-20.osk/file)
 ![Imgur Image](https://osu.ppy.sh/ss/14741820/6167)
