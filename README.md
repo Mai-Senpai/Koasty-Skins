@@ -48,3 +48,6 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 
 ## [Bubbleman](https://www.mediafire.com/file/6m40jm9mi21d89x/BubbleSkin20-03-20.osk/file)
 ![Imgur Image](https://osu.ppy.sh/ss/14741820/6167)
+
+## [Bloo-Vaxei](https://download1582.mediafire.com/h9o7x1d903kg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
+![Imgur Image](https://osu.ppy.sh/ss/14772563/fe69)
