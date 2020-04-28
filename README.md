@@ -51,3 +51,6 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 
 ## [Bloo-Vaxei](https://download1323.mediafire.com/jyu2ackvm8bg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14772563/fe69)
+
+## [idke - Skins](https://www.mediafire.com/folder/aq1ufnj0yibds/idke%201.2) 
+![Imgur Image](https://skins.osuck.net/uploads/posts/2019-04/1554353332_screenshot3560.jpg)
