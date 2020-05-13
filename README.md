@@ -54,3 +54,8 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 
 ## [idke - Skins](https://www.mediafire.com/folder/aq1ufnj0yibds/idke%201.2) 
 ![Imgur Image](https://skins.osuck.net/uploads/posts/2019-04/1554353332_screenshot3560.jpg)
+
+## [Varvalian](http://download855.mediafire.com/aruajgepkezg/pr8n1s15j37whi8/Komori+-+Pengu_Lian%28PwV%29.osk)
+![Imgur Image](https://skins.osuck.net/uploads/posts/2019-08/1565775649_screenshot6287.jpg)
+
+## [KANO](https://puu.sh/DlYUw.osk)
