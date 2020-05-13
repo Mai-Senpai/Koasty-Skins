@@ -59,3 +59,4 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ![Imgur Image](https://skins.osuck.net/uploads/posts/2019-08/1565775649_screenshot6287.jpg)
 
 ## [KANO](https://puu.sh/DlYUw.osk)
+![Imgur Image](https://osu.ppy.sh/ss/14909567/bf86)
