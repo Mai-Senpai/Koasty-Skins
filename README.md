@@ -60,3 +60,6 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 
 ## [KANO](https://puu.sh/DlYUw.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14909567/bf86)
+
+## [FlyingTuna - Mathi](https://doc-00-64-docs.googleusercontent.com/docs/securesc/e65jhslt9i880qrdtr777qh275iscaer/t3c16hsu8ala58o7rsbmlnb21r3kuakk/1589757975000/13941246780471932384/12265274978166372245/1Lr8OKg5ed-yHNCGPZfnns6Anq4je1XyD?e=download&authuser=0&nonce=48e70fe6kced0&user=12265274978166372245&hash=u1rqdo670dir5tdft9vufvsm0jb94rc0)
+![Imgur Image](https://osu.ppy.sh/ss/14932286/77d1)
