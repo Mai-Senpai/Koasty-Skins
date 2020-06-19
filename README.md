@@ -18,7 +18,6 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 (click the name to download)
 
 # KOASTY'S PERSONAL SKIN
-
 ## [YamashiroV2Koasty](https://cdn.discordapp.com/attachments/633473018353680449/691489138595201084/YamashiroV2Koasty.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14652028/043f)
 
