@@ -19,7 +19,7 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ## [YamashiroV2Koasty](https://cdn.discordapp.com/attachments/633473018353680449/691489138595201084/YamashiroV2Koasty.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14652028/043f)
 
-## [YamashiroV3Koasty](https://www.mediafire.com/file/iu3s7j7o38xnseh/YamashiroV3.osk/file)
+## [YamashiroV3Koasty](https://download1320.mediafire.com/724d16vt8dfg/iu3s7j7o38xnseh/YamashiroV3.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/15098410/b6ad)
 
 ## [Mathi](https://cdn.discordapp.com/attachments/633473018353680449/691489118496227358/Mathi.osk)
