@@ -29,7 +29,7 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 ## [Bloo-Vaxei](https://download1323.mediafire.com/jyu2ackvm8bg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14772563/fe69)
 
-# SKINS THAT KOAST USES
+# SKINS THAT KOASTY USES
 
 ## [Mathi](https://cdn.discordapp.com/attachments/633473018353680449/691489118496227358/Mathi.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14652029/0119)
