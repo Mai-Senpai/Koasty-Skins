@@ -23,7 +23,7 @@ Discord: ㄥ乇ㄖ几#7804 | DM me or @ me in Koasty's discord if anything dosen
 
 # KOASTY'S MAIN SKINS
 
-## [YamashiroV3Koasty](https://www.mediafire.com/file/4yepjjmiv1b4cjc/YamashiroV3Koasty.osk/file)
+## [YamashiroV3Koasty](https://www.mediafire.com/file/f5feb1xyqf1lv07/YamashiroV3Koasty.osk/file)
 to get the old version with: white cursor and old hitcircles, download this. --> [OLD VERSION](https://download1320.mediafire.com/724d16vt8dfg/iu3s7j7o38xnseh/YamashiroV3.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/15286022/6ff0)
 
