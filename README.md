@@ -31,10 +31,16 @@ NEW RELEASED SKIN! MADE BY JesusOmega!
 to get the old version with: white cursor and old hitcircles, download this. --> [OLD VERSION](https://download1320.mediafire.com/724d16vt8dfg/iu3s7j7o38xnseh/YamashiroV3.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/15286022/6ff0)
 
-## [Bloo-Vaxei](https://download1323.mediafire.com/jyu2ackvm8bg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
-![Imgur Image](https://osu.ppy.sh/ss/14772563/fe69)
+## [fiery](https://download1352.mediafire.com/wfq5l5bl19gg/4ryl6qqet0xs9nc/fierymod+v8+realest+ver.osk)
+![Imgur Image](https://skins.osuck.net/uploads/posts/2018-12/1543652013_screenshot1501.jpg)
+
+## [idke (old)](http://download2008.mediafire.com/z5y6oalimc0g/iquuacals63m6eq/idke%2B1.1.osk)
+![Imgur Image](https://skins.osuck.net/uploads/posts/2018-09/1537858215_bvputcn.jpg)
 
 # SKINS THAT KOASTY USES
+
+## [Bloo-Vaxei](https://download1323.mediafire.com/jyu2ackvm8bg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
+![Imgur Image](https://osu.ppy.sh/ss/14772563/fe69)
 
 ## [Mathi](https://cdn.discordapp.com/attachments/633473018353680449/691489118496227358/Mathi.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/14652029/0119)
