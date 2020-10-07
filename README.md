@@ -37,6 +37,9 @@ to get the old version with: white cursor and old hitcircles, download this. -->
 ## [idke (old)](http://download2008.mediafire.com/z5y6oalimc0g/iquuacals63m6eq/idke%2B1.1.osk)
 ![Imgur Image](https://skins.osuck.net/uploads/posts/2018-09/1537858215_bvputcn.jpg)
 
+## [Rohulk v5.0b](https://umbre.live/rohulk-1)
+![Imgur Image](https://osu.ppy.sh/ss/15645978/f7a7)
+
 # SKINS THAT KOASTY USES
 
 ## [Bloo-Vaxei](https://download1323.mediafire.com/jyu2ackvm8bg/8jpod1981ctapz7/BlooMoon-Vaxei.osk)
