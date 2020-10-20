@@ -31,8 +31,8 @@ NEW RELEASED SKIN! MADE BY JesusOmega!
 to get the old version with: white cursor and old hitcircles, download this. --> [OLD VERSION](https://download1320.mediafire.com/724d16vt8dfg/iu3s7j7o38xnseh/YamashiroV3.osk)
 ![Imgur Image](https://osu.ppy.sh/ss/15286022/6ff0)
 
-## [Rohulk v5.0b] <-- Koasty uses this(https://umbre.live/rohulk-1)
-## [Rohulk_V5] <-- Rohulks newest skin(https://cdn.discordapp.com/attachments/633473018353680449/691488995707715614/Rohulk_V5.osk)
+## [Rohulk v5.0b](https://umbre.live/rohulk-1) <-- Koasty uses this
+## [Rohulk_V5](https://cdn.discordapp.com/attachments/633473018353680449/691488995707715614/Rohulk_V5.osk) <-- Rohulks newest skin
 ![Imgur Image](https://osu.ppy.sh/ss/15645978/f7a7)
 
 ## [fiery](https://download1352.mediafire.com/wfq5l5bl19gg/4ryl6qqet0xs9nc/fierymod+v8+realest+ver.osk)
