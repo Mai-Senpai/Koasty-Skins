@@ -35,6 +35,9 @@ to get the old version with: white cursor and old hitcircles, download this. -->
 Koast uses v4 circles (in the folder) and the green cursor (in the folder)
 ![Imgur Image](https://osu.ppy.sh/ss/14652015/9997)
 
+## [Rohulk v5.0b](https://umbre.live/rohulk-1)
+![Imgur Image](https://osu.ppy.sh/ss/15645978/f7a7)
+
 ## [fiery](https://download1352.mediafire.com/wfq5l5bl19gg/4ryl6qqet0xs9nc/fierymod+v8+realest+ver.osk)
 ![Imgur Image](https://skins.osuck.net/uploads/posts/2018-12/1543652013_screenshot1501.jpg)
 
