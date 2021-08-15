@@ -1,12 +1,14 @@
 # Koasty-Skins
 
-# THIS WILL STAY UPDATED
+# THIS WILL NOT STAY UPDATED
+(sry i can not keep up with the skins anymore, but there will be a way to download/ get to know the skin names while he is live)
 
 his discord -> https://discord.gg/9bpuYdv
 
 his twitch -> https://www.twitch.tv/koast 
 
-Discord: leonkub#7804 | DM me or @ me in Koasty's discord if anything dosen't work (links) or you have problems finding the right skins/files.
+YOU CAN STILL DO THIS, BUT DO NOT HOPE FOR AN QUICK ANSWER:
+Discord: leonkub#5685 | DM me or @ me in Koasty's discord if anything dosen't work (links) or you have problems finding the right skins/files.
 
 # KOASTY'S SCOREBAR
 ## [Koasty - Scorebar](https://download1074.mediafire.com/vo02hyiwd4zg/2dwaaspyivdyfe1/Koast+Scorebar.zip)
