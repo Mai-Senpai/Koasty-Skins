@@ -8,6 +8,7 @@ his discord -> https://discord.gg/9bpuYdv
 his twitch -> https://www.twitch.tv/koast 
 
 YOU CAN STILL DO THIS, BUT DO NOT HOPE FOR AN QUICK ANSWER:
+
 Discord: leonkub#5685 | DM me or @ me in Koasty's discord if anything dosen't work (links) or you have problems finding the right skins/files.
 
 # KOASTY'S SCOREBAR
