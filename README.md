@@ -2,9 +2,9 @@
 
 # THIS WILL STAY UPDATED
 
-his discord -> https://discord.gg/nJNzHN
+his discord -> https://discord.gg/9bpuYdv
 
-his twitch -> https://www.twitch.tv/koasty 
+his twitch -> https://www.twitch.tv/koast 
 
 Discord: leonkub#7804 | DM me or @ me in Koasty's discord if anything dosen't work (links) or you have problems finding the right skins/files.
 
